@@ -56,4 +56,4 @@ yeah come right in the slot
 
 //Ty
 
-What the darkie doing
+What the darkie(dart monkey) doing
