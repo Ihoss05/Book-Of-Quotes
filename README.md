@@ -1,5 +1,6 @@
 # Book-Of-Quotes
 //Loic
+
 Were gonna wreck you in the vagina
 
 im gonna dihareah it through my mouth without the poop
@@ -42,14 +43,17 @@ does it enhighten your senses?
 what does it look like outside i haven't seen daylight in forever
 
 //Isaac
+
 IM COO COO FOR CRACK!!!
 
 if he comes on our ship will we get a bonus
 
 //Luke
+
 Im gonna go piss on the tv and find out
 
 yeah come right in the slot
 
 //Ty
+
 What the darkie doing
