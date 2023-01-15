@@ -50,3 +50,6 @@ if he comes on our ship will we get a bonus
 Im gonna go piss on the tv and find out
 
 yeah come right in the slot
+
+//Ty
+What the darkie doing
